@@ -46,4 +46,4 @@ Esse projeto está sob a licença MIT.
 
 ---
 
-Feito com ♥ by Pedro :wave: [Entre em contato comigo 😄 !!](<+55(73)98221-8314>)
+Feito com ♥ by Pedro :wave: [Entre em contato comigo 😄 !!](Phsoliver25@hotmail.com)
