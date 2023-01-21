@@ -46,4 +46,4 @@ Esse projeto está sob a licença MIT.
 
 ---
 
-Feito com ♥ by Pedro :wave: [ Muito obrigado por acessar o meu projeto 😄 !!]
+Feito com ♥ by Pedro
